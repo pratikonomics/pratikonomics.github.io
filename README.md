@@ -1,2 +1,0 @@
-# pratikonomics.github.io
- 
